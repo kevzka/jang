@@ -1,0 +1,2 @@
+# jang
+Jangan du buka
